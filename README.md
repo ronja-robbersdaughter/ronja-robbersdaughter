@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ronja-robbersdaughter
+- 👋 Hi, I’m Ronja!
 - 👀 I’m interested in photography, music, art, lotsa stuff.
 - 🌱 I’m currently learning media technology ✨, also pretty much whatever interesting thing I stumble upon at any given moment.
 - 😄 Pronouns: she/her
